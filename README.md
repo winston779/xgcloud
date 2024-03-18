@@ -1,6 +1,6 @@
 # xgcloud官网地址
 
-最新地址：[xgcloud.org](https://aff1.xg-aff02.xyz/#/register?code=SEYqcyR1)
+最新地址：[xgcloud.org](https://www.xg-site3.xyz/#/register?code=SEYqcyR1)
 
 ## 简介
 
